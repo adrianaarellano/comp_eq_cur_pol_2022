@@ -1,0 +1,1 @@
+# comp_eq_cur_pol_2022
